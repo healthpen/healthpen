@@ -13,7 +13,7 @@ I'm very into DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon,
 
 Check out my stupid friend <a href="https://github.com/corpsegals">Pronto</a>'s github, and my <a href="https://github.com/skibidbanhammer">daughter</a>'s.. and ig her stupid girlfriend <a href="https://github.com/0spawnzers">doe</a> /aff
 
-And these two idiots that co own my kid with I, <a href="https://theadmirals.straw.page">Pluto</a>, and Ink : 3
+And these two idiots that co own my kid with <a href="https://theadmirals.straw.page">Pluto</a>, and Ink : 3
 
 
 
@@ -33,6 +33,6 @@ You support OGEKOM, ALFRED'S PLAYHOUSE, indulge in LOLICON/SHOTACON/PROSHIP cont
 
 If you only intent on trying to get with me (romantically.). Geniunely, i am not and will not get interested.
 
-Same goes for venting. Always ask before doing so ; Unless you're a very cloes friend of mine. 
+Same goes for venting. Always ask before doing so ; Unless you're a very close friend of mine. 
 
 
