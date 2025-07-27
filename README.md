@@ -10,9 +10,7 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
 
 I'm very into Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
-Check out my stupid kids <a href="https://github.com/corpsegals">Pronto</a>, and my <a href="https://github.com/skibidbanhammer">daughter</a>'s.. and ig her stupid girlfriend <a href="https://github.com/0spawnzers">doe</a> /aff
-
-And these two idiots that co own my kid with <a href="https://theadmirals.straw.page">Pluto</a>, and <a href="https://x.com/hermesdvn">Hermes</a> :3 
+My githubless bitches here... <a href="https://theadmirals.straw.page">Pluto</a>, and <a href="https://x.com/hermesdvn">Hermes</a> :3 
 
 
 
