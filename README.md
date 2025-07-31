@@ -13,25 +13,8 @@ I'm very into Madness Combat and DVN/Hellmet at the moment, thought I'm a big fa
 Say hi to my only githubless baby ...  [Hermes](https://inkthepilot.straw.page) :3 
 
 
-
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
 
+lolol go on and stalk me
 
-
-
-DNI IF!!
-
-
-BASIC DNI, DUH. 
-
-You're under 15, unless i've already talked to you and we've established boundaries.
-
-You support OGEKOM, ALFRED'S PLAYHOUSE, indulge in LOLICON/SHOTACON/PROSHIP content.
-
-If you only intent on trying to get with me (romantically.). Geniunely, i am not and will not get interested.
-
-Same goes for venting. Always ask before doing so ; Unless you're a close friend of mine. 
-
-I also just block freely. If you're blocked, you just annoy me in some fashion and/or are affiliated with people i heavily dislike.
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o7a4bpingunb2cfvxg5kl3qj2a&cover_image=true&theme=karaoke&show_offline=true&background_color=05050b&interchange=true)](https://github.com/kittinan/spotify-github-profile)
