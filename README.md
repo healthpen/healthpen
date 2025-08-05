@@ -14,7 +14,3 @@ Say hi to my only githubless baby ...  [Hermes](https://inkthepilot.straw.page) 
 
 
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
-
-lolol go on and stalk me
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o7a4bpingunb2cfvxg5kl3qj2a&cover_image=true&theme=karaoke&show_offline=true&background_color=05050b&interchange=true)](https://github.com/kittinan/spotify-github-profile)
