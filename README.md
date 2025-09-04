@@ -8,7 +8,7 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
  
  C+H is very appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
-I'm very into Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
+I'm very into Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
 Say hi to my only githubless baby ...  [Hermes](https://inkthepilot.straw.page) :3 
 
@@ -24,7 +24,7 @@ DNI ;
 
 Basic shit. I don't want any of u pedos, racists, zoo, ableist bs on my profile.
 
-Okegom/ The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit.
+Okegom/ The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit, and you don't want anything to do w/ me.
 
 If ur not old enough to have discord then please don't interact with me. I'm a grown ass man
 
