@@ -2,7 +2,7 @@
 
 I have no idea how most of you make your Github aesthetic. So deal with . this uhh, decent one.
  
- I go by the name Crow/Gabriel, or any skin i sit as! My pronouns are she/he/it, and I am 20. 
+ I go by the name Hazard or Gabriel, or any skin i sit as! My pronouns are she/he/it, and I am 20. 
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ...
  
