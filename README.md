@@ -20,12 +20,18 @@ I have the mental stability of a chewed-on shoelace trying to hang onto an old s
 
 I don't often get tones in textes/calls but do not require tonetags all of the time. Don't overuse tones with me, it's annoying. 
 
+IWC :
+
+-14 . Dangles reminder that I am old as shit /lh
+
+Hetalia / Forsaken / Hazbin Hotel/ Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experiience w/ it.
+
 DNI ;
 
 Basic shit. I don't want any of u pedos, racists, zoo, ableist bs on my profile.
 
-Okegom/ The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit, and you don't want anything to do w/ me.
+Okegom  / Countryhuman / The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit, and you don't want anything to do w/ me.
 
-If ur not old enough to have discord then please don't interact with me. I'm a grown ass man
+If ur not old enough to have discord then please don't friend with me. 
 
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
