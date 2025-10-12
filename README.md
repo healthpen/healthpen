@@ -10,7 +10,7 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
 
 I'm very into Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
-Say hi to my only githubless baby ...  [Hermes](https://inkthepilot.straw.page) :3 
+My non github oomfies.. ...  [Hermes](https://inkthepilot.straw.page) and [Tarn <3](https://www.patreon.com/SynthesizedHoryzont)
 
 BEFORE YOU INT! -
 
