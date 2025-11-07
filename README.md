@@ -8,7 +8,7 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
  
  C+H is very appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
-I'm very into Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
+I'm very into Umamusume Pretty Derby, Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
 My non github oomfies.. ...  [Hermes](https://inkthepilot.straw.page) and [Tarn <3](https://www.patreon.com/SynthesizedHoryzont)
 
@@ -24,7 +24,7 @@ IWC :
 
 -14 . Dangles reminder that I am old as shit /lh
 
-Hetalia / Forsaken / Hazbin Hotel/ Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experiience w/ it.
+Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experiience w/ it.
 
 DNI ;
 
