@@ -8,9 +8,11 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
  
  C+H is very appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
-I'm very into Umamusume Pretty Derby, Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of STH, Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
-My non github oomfies.. ...  [Hermes](https://inkthepilot.straw.page) and [Tarn <3](https://www.patreon.com/SynthesizedHoryzont)
+I'm very into Umamusume Pretty Derby, Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
+
+Special niche interest mentions ; i like Sonic X, Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
+Say.. You should say hi to the githubless thangs..  [Hermes](https://inkthepilot.straw.page) and [Tarn](https://www.patreon.com/SynthesizedHoryzont) (my wifey!!)
 
 BEFORE YOU INT! -
 
@@ -29,6 +31,8 @@ Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy t
 DNI ;
 
 Basic shit. I don't want any of u pedos, racists, zoo, ableist bs on my profile.
+
+PROSHIPPERS / DARKSHIPPERS . Please dni ! If i find out youre either of those i'm blocking you lmao
 
 Okegom  / Countryhuman / The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit, and you don't want anything to do w/ me.
 
