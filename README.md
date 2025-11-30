@@ -12,6 +12,8 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
 I'm very into Umamusume Pretty Derby, Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
 
 Special niche interest mentions ; i like Sonic X, Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
+
+
 Say.. You should say hi to the githubless thangs..  [Hermes](https://inkthepilot.straw.page) and [Tarn](https://www.patreon.com/SynthesizedHoryzont) (my wifey!!)
 
 BEFORE YOU INT! -
