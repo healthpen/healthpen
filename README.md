@@ -6,7 +6,7 @@ I have no idea how most of you make your Github aesthetic. So deal with . this u
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ...
  
- C+H is very appreciated, thought I might not run to cuddle you if we're not close friends LOL.
+ C+H is very appreciated, thought I might not run to cuddle you if we're not close friends LOL. Also, TFC  AREA, You Y/N people... please don't randomly romantically rp with me it kinda scares me lmao
 
 
 I'm very into Umamusume Pretty Derby, Transformers, Madness Combat and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Okami, Mortal Kombat and other Roblox titles that i am too lazy to name. I play Limbus Company and CRK every 3 years
@@ -16,6 +16,8 @@ Special niche interest mentions ; i like Sonic X, Sims 2, Papa's pizzeria games,
 Say hi to my beloved wife [Tarn](https://www.patreon.com/SynthesizedHoryzont) !!
 
 BEFORE YOU INT! -
+
+
 
 Keep in mind i have a vile humor ; not sexual, thought just jokes that seems offensive. I do use the slurs that i reclaim -- never ones i cannot reclaim. I have a bad mouth and I swear a bit, if you're not comfy with that then definitely unfriend me.
 
