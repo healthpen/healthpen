@@ -33,14 +33,5 @@ IWC :
 
 Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it.
 
-DNI ;
-
-Basic shit. I don't want any of u pedos, racists, zoo, ableist bs on my profile.
-
-PROSHIPPERS / DARKSHIPPERS . Please dni ! If i find out youre either of those i'm blocking you lmao
-
-Okegom  / Countryhuman / The coffin of Andy and Leyley / Alfred's playhouse / Any of that stuff stay far from me. I literally don't want anything to do with your shit, and you don't want anything to do w/ me.
-
-If ur not old enough to have discord then please don't friend with me. 
 
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
