@@ -19,7 +19,7 @@ Say hi to my beloved wife [Tarn](https://www.patreon.com/SynthesizedHoryzont) !!
 
 BEFORE YOU INT! -
 
-
+I do have a dissociative disorder - Excuse my poor memory and often mediocre appearances, The Voices
 
 Keep in mind i have a vile humor ; not sexual, thought just jokes that seems offensive. I do use the slurs that i reclaim -- never ones i cannot reclaim. I have a bad mouth and I swear a bit, if you're not comfy with that then definitely unfriend me.
 
