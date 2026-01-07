@@ -2,9 +2,11 @@
 
 I have no idea how most of you make your Github aesthetic. So deal with . this uhh, decent one.
  
- I go by the name Hazard or Gabriel, or hell, even Opera. If you wish, you can also call me by any skin i sit as! My pronouns are she/he/it, and I am 20. 
+ I go by the name Hazard or Gabriel. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ...
+
+ I have little to no respect for the english language assume every typo is on purpose /j (I'm a sloppy typer AND i'm  french.)
  
  C+H is appreciated, thought I might not run to cuddle you if we're not close friends LOL. Also, TFC  AREA, You Y/N people... please don't randomly romantically rp with me it kinda scares me lmao
 
@@ -29,7 +31,7 @@ IWC :
 
 -14 . Dangles reminder that I am old as shit /lh
 
-Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experiience w/ it.
+Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it.
 
 DNI ;
 
