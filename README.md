@@ -14,7 +14,7 @@ I'm very into  Minecraft, Transformers, No, I'm not a human  and DVN/Hellmet at 
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
-Say hi to my beloved wife [Tarn](https://www.patreon.com/SynthesizedHoryzont) !!
+Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
 BEFORE YOU INT! -
 
