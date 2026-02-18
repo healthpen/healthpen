@@ -34,5 +34,5 @@ Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy t
 
 Also i don't fuck with proshipping/darkshipping, and all that regular DNI criteria.
 
-
+I HIDE FREELY, AND ALSO HIDE EVERY PEDOPHILIC / YBC SKIN. 
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
