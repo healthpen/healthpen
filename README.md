@@ -10,7 +10,7 @@ Hi gang!!!
  
  C+H is appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
-I'm very into  Minecraft, Transformers, No, I'm not a human  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
+I'm very into  Minecraft, No, I'm not a human  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
