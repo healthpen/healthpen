@@ -6,7 +6,7 @@ Hi gang!!!
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ... 
 
- I have little to no respect for the english language assume every typo is on purpose /j (I'm a sloppy typer AND i'm  french.)
+I'm french but more comfortable w/ english!!! For..Whatever reason.
  
  C+H is appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
@@ -30,7 +30,7 @@ ILL  KEEP INTERACTIONS AT BAY IF..:
 
 you're under -14 . Dangles reminder that I am old as shit /lh
 
-Hetalia / Forsaken / Hazbin Hotel / Helluva Boss . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it.
+Hetalia / Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
 
 Also i don't fuck with proshipping/darkshipping, and all that regular DNI criteria.
 
