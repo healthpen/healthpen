@@ -14,6 +14,8 @@ I'm very into  Minecraft, No, I'm not a human  and DVN/Hellmet at the moment, th
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
+I sometimes indulge in homestuck content.. I used to be a big fan like 6 years ago lol
+
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
 BEFORE YOU INT! -
