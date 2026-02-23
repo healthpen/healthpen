@@ -16,6 +16,8 @@ Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) ,
 
 I sometimes indulge in homestuck content.. I used to be a big fan like 6 years ago lol
 
+I DO  NOT SUPPORT BAD PEOPLE!! if you see me in a pepoyo skin I  JUST LIKE THE MUSIC!! 
+
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
 BEFORE YOU INT! -
