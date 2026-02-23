@@ -38,7 +38,7 @@ Hetalia / Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necesses
 
 Also i don't fuck with proshipping/darkshipping, and all that regular DNI criteria.
 
-I HIDE FREELY, MAINLY HIDING EVERY PROBLEMATIC SKIN. Idc if u think making YBC characters  or hitler is funny it's not lmaoo
+I HIDE FREELY, MAINLY HIDING EVERY PROBLEMATIC SKIN. Idc if u think making YBC characters  or hitler is funny it's not lmaoo (i have  over  +100 people hidden..  lolol)
 
 Also i like to sit and hide every countryhuman i see, so if i hid you its likely cuz you are one of them..  ok?
 ╰─..★.────────────────────────────────────────────────────────────────────────╯
