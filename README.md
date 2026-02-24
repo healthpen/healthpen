@@ -2,7 +2,7 @@
 
 Hi gang!!!
  
- I mainly go by Gabriel. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
+ I mainly go by Gabriel, or even Calar. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ... 
 
