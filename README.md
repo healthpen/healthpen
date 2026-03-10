@@ -10,13 +10,15 @@ I'm french but more comfortable w/ english!!! For..Whatever reason.
  
  C+H is appreciated, thought I might not run to cuddle you if we're not close friends LOL.
 
-I'm very into  Minecraft, No, I'm not a human  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
+I'm very into  Minecraft (ARG and horror mods), No, I'm not a human  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
+I have some deep attachments to some characters, calling them my huzz/wife ect, i don't care about 'doubles' it is not that deep (to me) 
+
 I sometimes indulge in homestuck content.. I used to be a big fan like 6 years ago lol
 
-I DO  NOT SUPPORT BAD PEOPLE!! if you see me in a pepoyo skin I  JUST LIKE THE MUSIC!! 
+I DO  NOT SUPPORT BAD PEOPLE!! if you see me in a pepoyo skin I JUST LIKE THE MUSIC!! 
 
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
