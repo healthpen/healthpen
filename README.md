@@ -32,6 +32,8 @@ I have the mental stability of a chewed-on shoelace trying to hang onto an old s
 
 I don't often get tones in textes/calls but do not require tonetags all of the time. Don't overuse tones with me, it's annoying. 
 
+If you make Epstein/Diddy jokes around me i will block you on sight. Stop taking serious things so lightly.
+
 ILL  KEEP INTERACTIONS AT BAY IF..:
 
 you're under -14 . Dangles reminder that I am old as shit /lh
