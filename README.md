@@ -36,6 +36,8 @@ If you make Epstein/Diddy jokes around me i will block you on sight. Stop taking
 
 ILL  KEEP INTERACTIONS AT BAY IF..:
 
+I am so very uncomfortable with jokes about Incest, except me to block you over them. I don't care if they're 'just joke'. Dark humour has its limits and  i fear  some  of you use it as a shield to say WHATEVER.
+
 you're under -14 . Dangles reminder that I am old as shit /lh
 
 Hetalia / Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
