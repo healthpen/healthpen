@@ -8,9 +8,9 @@ Hi gang!!!
 
 I'm french but more comfortable w/ english!!! For..Whatever reason.
  
- C+H is appreciated, thought I might not run to cuddle you if we're not close friends LOL.
+Idc for C+H, i'll simply move away if i dont wanna sit w ppl lol
 
-I'm very into  Minecraft (ARG and horror mods), No, I'm not a human, Marble Hornets  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
+I'm very into GRACE!!! I LOVE GRACE RIPS OFF SHIRT,  Minecraft (ARG and horror mods), No, I'm not a human, Marble Hornets  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some other Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
@@ -24,7 +24,7 @@ Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite
 
 BEFORE YOU INT! -
 
-I do have a dissociative disorder - Excuse my poor memory and often mediocre appearances, The Voices
+I do have a dissociative disorder - Excuse my poor memory and often mediocre appearances. 
 
 Keep in mind i have a vile humor ; not sexual, thought just jokes that seems offensive. I do use the slurs that i reclaim -- never ones i cannot reclaim. I have a bad mouth and I swear a bit, if you're not comfy with that then definitely unfriend me.
 
