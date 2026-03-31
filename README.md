@@ -1,7 +1,5 @@
 ╭───────────────────────────────────────────────────────────────────────────.★..─╮
 
-IF YOU ASSOCIATE ME WITH THE ACCOUNT PUREDOCTOR, DO  NOT ENGAGE WITH IT, IT HAS BEEN HACKED AND I  HAVE NO ACCESS TO IT, ADD ME ON FALSEDOCTOR INSTEAD. THANK YOU.
-
 Hi gang!!!
  
  I mainly go by Gabriel, or even Calar. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
