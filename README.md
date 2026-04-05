@@ -1,3 +1,6 @@
+
+<img width="428" height="299" alt="image" src="https://github.com/user-attachments/assets/b37f8d9d-a866-4c74-b868-3efe35f03237" />
+i gave birth to my son btw
 ╭───────────────────────────────────────────────────────────────────────────.★..─╮
 
 Hi gang!!!
