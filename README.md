@@ -13,7 +13,7 @@ I'm french but more comfortable w/ english!!! For..Whatever reason.
  
 Idc for C+H, i'll simply move away if i dont wanna sit w ppl lol
 
-I'm very into GRACE!!! I LOVE GRACE RIPS OFF SHIRT,  Minecraft (ARG and horror mods), No, I'm not a human, Marble Hornets  and DVN/Hellmet at the moment, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some other Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
+All my favourite roblox games are getting cancelled but alas i still like  ERROR_CODE, Minecraft (ARG and horror mods), No, I'm not a human, Marble Hornets, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some other Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
 
