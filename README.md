@@ -1,7 +1,7 @@
 
 <img width="428" height="299" alt="image" src="https://github.com/user-attachments/assets/b37f8d9d-a866-4c74-b868-3efe35f03237" />
 i gave birth to my son btw
-╭───────────────────────────────────────────────────────────────────────────.★..─╮
+╭──────────────────────────────────────────────────────────────────────.★..─╮
 
 Hi gang!!
  
@@ -50,4 +50,4 @@ Also i don't fuck with proshipping/darkshipping, and all that regular DNI criter
 I HIDE FREELY, MAINLY HIDING EVERY PROBLEMATIC SKIN. Idc if u think making YBC characters  or hitler is funny it's not lmaoo (i have  over  +100 people hidden..  lolol)
 
 Also i like to sit and hide every countryhuman i see, so if i hid you its likely cuz you are one of them..  ok?
-╰─..★.────────────────────────────────────────────────────────────────────────╯
+╰─..★.─────────────────────────────────────────────────────────────────────╯
